@@ -15,5 +15,10 @@ version hd version
 less buggy
 
 coming today
+This project is not in works anymore 
+last update this year 
+
+Ai is slop 
+Microsoft is slop
 
 
